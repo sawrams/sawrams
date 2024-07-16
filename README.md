@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hai there UwU
 
 I'm a usual smol student from Russia, Moscow
 
